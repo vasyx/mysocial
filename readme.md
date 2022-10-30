@@ -1,5 +1,5 @@
 ***Here I will collect all my social media accounts***
 #
-*Twitter ![twitter-logo-vector-png-clipart-1](https://user-images.githubusercontent.com/79379986/198880693-ba603d39-4d12-4a2b-97fe-70b7d3927d63.png)
-*
+**Twitter**
+![103-1037817_13-twitter-icon-vector-logo-images-twitter-logo](https://user-images.githubusercontent.com/79379986/198880974-f6557878-2883-45ba-bf9a-7b54d45eff46.png)
 https://twitter.com/vasyx24
